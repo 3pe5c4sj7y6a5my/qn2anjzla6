@@ -1,1 +1,1 @@
-# qn2anjzla6
+Photoshop also offers a variety of text editing tools. You can create headlines, logos, banners, and other design elements using different fonts, styles, and effects. You can also apply textures and gradients to your text to give it a unique look. Check out here - https://github.com/vio1217/Illustrator
